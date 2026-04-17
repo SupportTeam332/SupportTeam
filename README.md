@@ -2,7 +2,7 @@ Hi,
 
 This email confirms that your PayPal payment has been successfully processed. Your billing is complete, and the invoice is attached for your records.
 
-For questions or assistance, please reach out to our Billing  Desk team at +1 843 270 7775.
+For questions or assistance, please reach out to our Billing  Desk team at +1 843 270 7775. 
 
 Billing Information
 
